@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Rohit Kakani
+- 👀 I’m interested in learning new technologies, working on developing new softwares.
